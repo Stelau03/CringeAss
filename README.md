@@ -1,4 +1,4 @@
 # CringeAss
 Here we just chill and eat pizza
 
-## *BRUH*
+## <a href:"https://cornhub.website/">*BRUH*>
